@@ -221,7 +221,7 @@ Passionate about bridging the gap between engineering precision and data-driven 
 
 **Connect & Collaborate:**
 - 💼 [LinkedIn](www.linkedin.com/in/akhilesh-shahapurkar9899)
-- 📧 akhileshshahapurkar.com
+- 📧 akhileshshahapurkar@gmail.com
 - 🐙 [GitHub](https://github.com/AkhileshS9899)
 
 ---
